@@ -1,2 +1,2 @@
 # Illustrations
-A portfolio of all of my graphic designs.
+A portfolio of all my graphic designs.
